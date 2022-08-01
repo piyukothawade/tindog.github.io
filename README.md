@@ -1,3 +1,3 @@
-# tindog.github.io
 
-[Run](https://piyukothawade.github.io/tindog.github.io/) 
+
+# [►](https://piyukothawade.github.io/tindog.github.io/) 
